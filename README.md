@@ -1,31 +1,30 @@
-# 手机在线 最新地址
-请选择最新地址
+站点地址发布页,最全面准确且更新及时!
 
-[https://cn.av101.xyz](https://cn.av101.xyz)
+请务必收藏此页面，防止地址丢失。
 
-[https://cn.ax101.ws](https://cn.ax101.ws)
+最新地址一: sj123.cf 
 
-[https://cn.av101.me](https://cn.av101.me)
+最新地址一: sjzxsp.ml
 
+最新地址一: www.mfmp4.com
 
-永久地址发布站
+最新地址一: www.sj123.ml
 
-地址1: [https://github.com/avhd101/home](https://github.com/avhd101/home)
+最新地址一: www.cq1288.com
 
-地址2: [https://101fix.cc](https://101fix.cc)
-
-海外永久地址(需翻墙)
-
-[AVHD101.com](https://avhd101.com)
+发送任意邮件到 sjzxsp@gmail.com 自动获取最新地址
 
 
-二維碼
-
-[<img src="https://i.imgur.com/mpk0cmh.jpg">](https://i.imgur.com/mpk0cmh.jpg)
+美国绿色导航 https://www.mglsdh.com
 
 
-国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
+打不开本站怎么办？请查看以下常见问题办法
 
-[谷歌浏览器下载](https://www.google.cn/chrome "谷歌浏览器")
+1.关闭QQ电脑管家这些安全拦截软件。
 
-若你是 iPhone、Mac 的用户，建议使用系统自带的 Safari 浏览器
+2.或者在安全软件添加本站网址为信任白名单。
+
+3.在安全软件，或者浏览器这些设置本站为可信站点，信任白名单这些。
+
+ 
+请收藏此页面，随时获得最新地址
